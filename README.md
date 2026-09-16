@@ -18,6 +18,8 @@
  <a href="https://github.com/flytewings">🦝</a> <a href="https://github.com/hundredrats">🐡</a> <a href="https://github.com/starcrissy">🐇</a> <a href="https://github.com/kouscat">🐣</a> <a href="https://github.com/aphnic">🦭</a>
   
   hi guys i love you lots ♡ mwah mwah
+
+  art cr @/tearsonice
  </details>
  </table>
 
