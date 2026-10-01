@@ -33,5 +33,4 @@
   </a>
 </p>
 
-<img width="300" src="https://github.com/user-attachments/assets/fd6ce917-21cf-4d0d-835a-3d732fff8832" />
-
+<img width="300" src="https://64.media.tumblr.com/9f69a6c5a91b671e14ad2017bb0d27b3/14fbdf8d98daa278-04/s1280x1920/1fd784d1fadaaf287c6625e5b7ede9f3a739fc93.pnj" />
