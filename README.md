@@ -16,3 +16,6 @@
 <details> <summary>⠀  ⠀  friends⠀  ⠀  <img width="20" src="https://i.postimg.cc/JnzSvM25/IMG-3952.gif"/> </summary>
  <a href="https://github.com/flytewings">🦝</a>⠀<a href="https://github.com/hundredrats">🐡</a>⠀<a href="https://github.com/starcrissy">🐇</a>⠀<a href="https://github.com/kouscat">🐣</a>⠀<a href="https://github.com/aphnic">🦭</a>
  </details>
+
+
+<img width="340" src="https://pbs.twimg.com/media/HUNyC-LaAAAVyO7.jpg"/>
