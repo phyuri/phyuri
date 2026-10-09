@@ -7,7 +7,7 @@
     <td><img width="100" src="https://i.postimg.cc/8PX73L0K/IMG-3836.gif"/></td>
     <td>  <img src="https://i.postimg.cc/Y0SpTrNz/IMG-6090.gif"/> $\color{white}\textsf{⠀it⠀its}$
 <br></br>
-  <img width="25" src="https://i.postimg.cc/sx2VbjPL/IMG-6095.gif"/> ⠀<i><a href="https://txto.eu.org/howell">txto</a> ⠀ <a href="">rntry</a> ⠀ <a href="https://rib.atabook.org">新book</a></i>
+  $\color{white}\textsf{info ⇉}$⠀<i><a href="https://txto.eu.org/howell">txto</a> ⠀ <img width="25" src="https://i.postimg.cc/sx2VbjPL/IMG-6095.gif"/> ⠀ <a href="https://rib.atabook.org">新book</a></i>
   
   </td>
 </tr>
