@@ -23,14 +23,3 @@
 
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=yeslnco28d0j7p2y2efpb86u0&cover_image=true&theme=natemoo-re&show_offline=false&background_color=7d7d7d&interchange=false&profanity=false&hide_remaster=false&bar_color=a8a8a8&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </details>
-
-⠀
-
-⠀
-
-⠀
-
-⠀
-
-
-<a href="https://docs.google.com/document/d/1uRVB3aOaflOka5UoyNzaehCNSNYCBIzv_QpHa0GHTLc/edit?usp=sharing">hi i ship an "assigned sisters by fandom" pairing and my friend made me a callout for that. thank you so much bob/@hundredrats.</a>
