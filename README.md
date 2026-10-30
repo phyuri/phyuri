@@ -1,6 +1,34 @@
-<a href="https://docs.google.com/document/d/1uRVB3aOaflOka5UoyNzaehCNSNYCBIzv_QpHa0GHTLc/edit?usp=sharing">hi i ship an "assigned sisters by fandom" pairing and my friend made me a callout for that. thank you so much bob/@hundredrats.</a> anyway, stan dan and phil. watch dan and phil. stream danandphilbeats. watch every pinof. watch every spooky week. watch all tours.
+<div id="header" align="center">
+  
+
+<table>
+<tr>
+    <td><img width="100" src="https://files.catbox.moe/ejfyg7.png"/></td>
+<td width="130">
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&duration=1000&pause=1000&color=B6B6B6&multiline=true&width=155&height=55&lines=danny%E2%A0%80or%E2%A0%80sophie;18%E2%A0%80%E2%A0%80+%EA%92%B0%EA%92%B0+%E2%A0%80%E2%A0%80it%2Fall)](https://git.io/typing-svg) <img src="https://64.media.tumblr.com/d8d179a9721c4dadbc240712d7a4dea9/d8b78dc102b9bb3c-25/s1280x1920/595c3485d0c7f726beccb663a79ebe40f5963fcf.pnj" /> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&duration=1000&pause=1000&color=B6B6B6&multiline=true&width=155&height=55&lines=c%2Bh%E2%A0%80+%E2%A0%80%E2%A0%80friendly;click+%E2%A0%80for%E2%A0%80+%E6%96%B0bk)](https://rib.atabook.org)
 
 
 
-<img width="1920" height="1920" alt="image" src="https://github.com/user-attachments/assets/002ab4ae-5218-409b-8427-aa92cbcbdee2" />
+</td>
+    <td> 
+<img width="22" src="https://files.catbox.moe/tzwlhd.png"/>
+  
+  </td>
+</tr>
+</table>
 
+<details><summary></summary>
+<a href="https://github.com/flytewings">🦝</a>⠀<a href="https://github.com/starcrissy">🐇</a>⠀<a href="https://github.com/hundredrats">🐡</a>⠀<a href="https://github.com/kouscat">🐣</a>⠀<a href="https://github.com/aphnic">🦭</a>
+</details>
+
+⠀
+
+⠀
+
+⠀
+
+⠀
+
+
+<a href="https://docs.google.com/document/d/1uRVB3aOaflOka5UoyNzaehCNSNYCBIzv_QpHa0GHTLc/edit?usp=sharing">hi i ship an "assigned sisters by fandom" pairing and my friend made me a callout for that. thank you so much bob/@hundredrats.</a>
