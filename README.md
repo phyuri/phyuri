@@ -1,11 +1,20 @@
 <div id="header" align="center">
 
+ <table>
+<tr>
+    <td><img width="180" src="https://i.pinimg.com/736x/b7/e8/f5/b7e8f503bff8c9d2c0eea65534571b6f.jpg"/></td>
+<td width="220">
+
+im danny or whatever! use it/its only or get super creative with it i dont care. i wont interact with u if ure under 16 or have no age in bio Ok. for anything else just ask sorry im lazy.
+
+
+
+  </td>
+</tr>
+</table>
+
   
 <details><summary></summary>
-<a href="https://github.com/flytewings">🦝</a>⠀<a href="https://github.com/starcrissy">🐇</a>⠀<a href="https://github.com/hundredrats">🐡</a>⠀<a href="https://github.com/kouscat">🐣</a>⠀<a href="https://github.com/aphnic">🦭</a>
-
-
-
 
 <img width="180" src="https://github.com/user-attachments/assets/ca0bba04-93b4-4edc-b911-10dfc86202c9" />
 
