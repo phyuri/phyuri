@@ -5,7 +5,7 @@
     <td><img width="180" src="https://i.pinimg.com/736x/b7/e8/f5/b7e8f503bff8c9d2c0eea65534571b6f.jpg"/></td>
 <td width="220">
 
-im danny or whatever! 18. use it/its only or get super creative with it i dont care. im into rpf. i wont interact with u if ure under 16 or have no age in bio Ok. for anything else just ask sorry im lazy as fuck -_-
+im danny or whatever! 18. use it/its only or get super creative with it i dont care. im into rpf. i will avoid interacting with u if ure under 16 or have no age in bio Ok. for anything else just ask sorry im lazy as fuck -_-
 
 
 
