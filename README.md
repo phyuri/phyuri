@@ -2,22 +2,18 @@
 
  <table>
 <tr>
-    <td><img width="180" src="https://i.pinimg.com/736x/b7/e8/f5/b7e8f503bff8c9d2c0eea65534571b6f.jpg"/></td>
-<td width="220">
+    <td width="180"><img width="auto" src="https://files.catbox.moe/scpfk6.png"/>
+❤︎⠀【⠀<ins>DAN</ins>iEL⠀】⠀<img width="20" src="https://i.postimg.cc/PJsNCvKF/tumblr-4f9bc964a338ff7b5413310375cd997c-238278b8-75.png"/> <img width="20" src="https://64.media.tumblr.com/ceb90b09608167754ce06e47759a21e7/3ce80c221c207588-d6/s75x75_c1/4f9df11c61aa993d1d593a74b864f838c28454a2.png"/>⠀It⧓He<sup>18</sup>⠀♀⠀<a href="https://rentry.co/021"><sub>①</sub></a> <a href="https://rib.atabook.org">②</a> <img src="https://files.catbox.moe/ft5xlh.png"/>  <a href="https://github.com/flytewings">🦝</a>⠀<a href="https://github.com/starcrissy">🐇</a>⠀<a href="https://github.com/hundredrats">🐡</a>⠀<a href="https://github.com/kouscat">🐣</a>⠀<a href="https://github.com/aphnic">🦭</a> </td> 
 
-im danny or whatever! 18. use it/its only or get super creative with it i dont care. im into rpf. i will avoid interacting with u if ure under 16 or have no age in bio Ok. for anything else just ask sorry im lazy as fuck -_-
-
-
-
-  </td>
 </tr>
 </table>
 
   
-<details><summary></summary>
+<details><summary>credits etc.</summary>
 
-<img width="180" src="https://github.com/user-attachments/assets/ca0bba04-93b4-4edc-b911-10dfc86202c9" />
+<a href="https://x.com/miesgnmy/status/2091803096880156841/photo/1">readme art credit</a>
 
+<img width="250" src="https://files.catbox.moe/vzd71f.png" />
 
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=yeslnco28d0j7p2y2efpb86u0&cover_image=true&theme=natemoo-re&show_offline=false&background_color=7d7d7d&interchange=false&profanity=false&hide_remaster=false&bar_color=a8a8a8&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </details>
